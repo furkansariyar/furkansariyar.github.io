@@ -1,1 +1,0 @@
-# furkansariyar.github.io
